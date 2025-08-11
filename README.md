@@ -1,1 +1,1 @@
-# Freddy-s-Website
+# Freddy-Website
